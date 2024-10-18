@@ -1,30 +1,34 @@
 # Morning
 
-**Not slothful in business; fervent in spirit; serving the Lord.**
+**One of the soldiers with a spear pierced his side, and forthwith came there out blood and water.**
  
-Whatsoever thy hand findeth to do, do it with thy might; for there is no work, nor device, nor knowledge, nor wisdom, in the grave, whither thou goest. -- Whatsoever ye do, do it heartily, as to the Lord, and not unto men; knowing that of the Lord ye shall receive the reward of the inheritance: for ye serve the Lord Christ. -- Whatsoever good thing any man doeth, the same shall he receive of the Lord.
+Behold the blood of the covenant, which the LORD hath made with you. -- The life of the flesh is in the blood: and I have given it to you upon the altar to make an atonement for your souls. -- It is not possible that the blood of bulls and of goats should take away sins.
  
-I must work the works of him that sent me, while it is day: the night cometh, when no man can work. -- Wist ye not that I must be about my Father's business? -- The zeal of thine house hath eaten me up.
+Jesus said unto them, This is my blood of the new testament, which is shed for many. -- By his own blood he entered in once into the holy place, having obtained eternal redemption for us. -- Peace through the blood of his cross.
  
-Brethren, give diligence to make your calling and election sure: for if ye do these things, ye shall never fall. -- We desire that every one of you do shew the same diligence to the full assurance of hope unto the end; that ye be not slothful, but followers of them who through faith and perseverence inherit the promises. -- So run, that ye may obtain.  
+Ye know that ye were not redeemed with corruptible things, as silver and gold, ... but with the precious blood of Christ, as of a lamb without blemish and without spot, ... manifest in these last times for you.
+ 
+Then will I sprinkle clean water upon you and ye shall be clean: ... from all your idols, will I cleanse you. -- Let us draw near with a true heart in full assurance of faith, having our hearts sprinkled from an evil conscience.  
 
-**Rom 12:11; Eccl 9:10; Col 3:23,24; Eph 6:8; John 9:4; Luke 2:49; John 2:17; 2 Pet 1:10; Heb 6:11,12; 1 Cor 9:24**
+**John 19:34; Exo 24:8; Lev 17:11; Heb 10:4; Mark 14:24; Heb 9:12; Col 1:20; 1 Pet 1:18-20; Ezek 36:25; Heb 10:22**
 
 # Evening
 
-**Lead us not into temptation, but deliver us from evil.**
+**Amen.**
  
-He that trusteth in his own heart is a fool: but whoso walketh wisely, he shall be delivered.
+Amen: the LORD God ... say so too. -- He who blesseth himself in the earth shall bless himself in the God of truth (Heb. The Amen) and he that sweareth in the earth shall swear by the God of truth (The Amen).
  
-Let no man say when he is tempted, I am tempted of God: for God cannot be tempted with evil, neither tempteth he any man: but every man is tempted, when he is drawn away of his own lust, and enticed. -- Wherefore come out from among them, and be ye separate, saith the Lord, and touch not the unclean thing; and I will receive you.
+When God made promise to Abraham, because he could swear by no greater, he sware by himself. For men verily swear by the greater: and an oath for confirmation is to them an end of all strife. Wherein God, willing more abundantly to shew unto the heirs of promise the immutability of his counsel, confirmed it by an oath: that by two immutable things, in which it was impossible for God to lie, we might have a strong consolation, who have fled for refuge to lay hold upon the hope set before us.
  
-Lot lifted up his eyes, and beheld all the plain of Jordan, that it was well watered every where, ... even as the garden of the LORD. Then Lot chose him all the plain of Jordan; but the men of Sodom were wicked and sinners before the LORD exceedingly. -- [The Lord] delivered just Lot, vexed with the filthy conversation of the wicked. The Lord knoweth how to deliver the godly out of temptations. -- Yea, he shall be holden up: for God is able to make him stand.  
+These things saith the Amen, the faithful and true witness. -- For all the promises of God in him are yea, and in him Amen, unto the glory of God by us.
+ 
+Blessed be the LORD God, the God of Israel, who only doeth wondrous things. And blessed be his glorious name for ever. Amen, and Amen.  
 
-**Matt 6:13; Prov 28:26; Jas 1:13,14; 2 Cor 6:17; Gen 13:10,11,13; 2 Pet 2:7,9; Rom 14:4**
+**Matt 6:13; 1 Kgs 1:36; Isa 65:16; Heb 6:13,16-18; Rev 3:14; 2 Cor 1:20; Psa 72:18,19**
 
 ---
 
-[Wednesday 16-October, 2024](https://t.me/s/daily_light)
+[Friday 18-October, 2024](https://t.me/s/daily_light)
 
 > Jonathan Bagster, the son of Samuel Bagster, created the Daily Light for his own family's daily devotion in 1875
 

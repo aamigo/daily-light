@@ -1,13 +1,15 @@
 **Evening**
 
-**Lead us not into temptation, but deliver us from evil.**
+**Amen.**
  
-He that trusteth in his own heart is a fool: but whoso walketh wisely, he shall be delivered.
+Amen: the LORD God ... say so too. -- He who blesseth himself in the earth shall bless himself in the God of truth (Heb. The Amen) and he that sweareth in the earth shall swear by the God of truth (The Amen).
  
-Let no man say when he is tempted, I am tempted of God: for God cannot be tempted with evil, neither tempteth he any man: but every man is tempted, when he is drawn away of his own lust, and enticed. -- Wherefore come out from among them, and be ye separate, saith the Lord, and touch not the unclean thing; and I will receive you.
+When God made promise to Abraham, because he could swear by no greater, he sware by himself. For men verily swear by the greater: and an oath for confirmation is to them an end of all strife. Wherein God, willing more abundantly to shew unto the heirs of promise the immutability of his counsel, confirmed it by an oath: that by two immutable things, in which it was impossible for God to lie, we might have a strong consolation, who have fled for refuge to lay hold upon the hope set before us.
  
-Lot lifted up his eyes, and beheld all the plain of Jordan, that it was well watered every where, ... even as the garden of the LORD. Then Lot chose him all the plain of Jordan; but the men of Sodom were wicked and sinners before the LORD exceedingly. -- [The Lord] delivered just Lot, vexed with the filthy conversation of the wicked. The Lord knoweth how to deliver the godly out of temptations. -- Yea, he shall be holden up: for God is able to make him stand.  
+These things saith the Amen, the faithful and true witness. -- For all the promises of God in him are yea, and in him Amen, unto the glory of God by us.
+ 
+Blessed be the LORD God, the God of Israel, who only doeth wondrous things. And blessed be his glorious name for ever. Amen, and Amen.  
 
-**Matt 6:13; Prov 28:26; Jas 1:13,14; 2 Cor 6:17; Gen 13:10,11,13; 2 Pet 2:7,9; Rom 14:4**
+**Matt 6:13; 1 Kgs 1:36; Isa 65:16; Heb 6:13,16-18; Rev 3:14; 2 Cor 1:20; Psa 72:18,19**
 
-[Wednesday 16-October, 2024](https://t.me/daily_light)
+[Friday 18-October, 2024](https://t.me/daily_light)
